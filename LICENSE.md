@@ -1,4 +1,4 @@
-# 
+# Get the ultimate XMind for Windows helper with new XMind for Windows Helper | task-integration + cloud-sync. Featuring task-integration and cloud-sync, it's the best choice for
 
 
 
